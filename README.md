@@ -1,4 +1,4 @@
-# Trip.com Referral Code "FJ9XLJ" – Get Up to $20 Off On First Purchases (2025 Guide)
+# Trip.com Referral Code "FJ9XLJ" – Get Up to $20 Off On First Purchases
 
 Traveling is no longer a luxury—it’s a lifestyle. And with platforms like **Trip.com**, booking your next adventure has never been easier. But what if you could make that journey *even more affordable*?  
 Here’s the good news: with the **Trip.com Referral Code “FJ9XLJ”**, you can get **up to $20 off on your first purchase**! Whether you’re booking flights, hotels, trains, or even attraction tickets, this offer makes your travel experience smarter and cheaper.
